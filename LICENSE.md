@@ -1,4 +1,4 @@
-
+steal the brainrot base adv Scripts: god & esp is the ultimate solution for steal the brainrot base players! Our scripts provide god and esp, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your steal the brainrot base experience today!
 
 
 ---
